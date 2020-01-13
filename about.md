@@ -3,10 +3,7 @@ layout: page
 title: About
 ---
 
-
-_Written in English. You can read the Bahasa version right below English section_
-
-### I am a engineer kinda person, living in Jakarta for another year.
+### An engineer who lives in Jakarta for another year.
 
 Never thougt I'll ended up being engineery and all its stuff, but I really love what I do now. It suits me so much so it never comes to me that I'm actually working the entire day.
 
