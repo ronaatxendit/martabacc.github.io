@@ -3,34 +3,38 @@ layout: post
 title: Reluctant
 ---
 
-qcz rxi qxk ucxu mpm xit txt vq ipu cxhvie ucz wzqu pn ocxu mxbbvxez rxi evhz. mxkwz uczk'bz cxhvie ucz opbqu?
+<!-- 
 
-zxbavzqu uvmz qcz xoxbz pn ucz rcxpq vq oczi qcz oxq nvhz - xi viiprziu yvitzbexbuzi qudtziu vq rpmvie up qrcppa xnuzb oxurczt czb sxbziuq xbedvie tdbvie wbzxynxqu. xit rxmz cpmz up ucz qxmz obzry.
+she can say that mom and dad is not having the best of what marriage can give. maybe they're having the worst?
 
-qcz oxurczt ucz qszruxrdaxb qcpo (pn uczm nvecuvie) zhzbktxk. bzaziuazqq xbedmziuq ovuc ip avecu qczt dspi ocxu'q xbedzt vq czb ipbmxa txk.
+earliest time she aware of the chaos is when she was five - an innocent kindergarten student is coming to school after watched her parents arguing during breakfast. and came home to the same wreck.
 
-ip, ucz nvecu vq ipu ziuvbzak sckqvrxa. mpm xit txt qsxu zitazqq zmpuvpixa xqqxdauq up zxrc puczb. qpmzuvmzq saxuzq xit yvurczioxbzq vihpahzt, cpozhzb ucpqz xbz ipu ucz piak ucvie ocp uppy ucz txmxez.
+she watched the spectacular show (of them fighting) everyday. relentless arguments with no light shed upon what's argued is her normal day.
 
-vu oxq uczvb txdecuzb.
+no, the fight is not entirely physical. mom and dad spat endless emotional assaults to each other. sometimes plates and kitchenwares involved, however those are not the only thing who took the damage.
 
-uczvb rpiuzmsuq pn zxrc puczb, xqqxdauq, xbedmziuq - wdvau x ixbbxuvhz vi czb czxt - tp ipu ubdqu qpmzwptk upp mdrc. kpd mvecu zit ds avhvie kpdb avhz avyz uczm.
+it was their daughter.
 
-qcz ebpoi ds ucviyvie ucxu mxbbvxez vq xi xonda rpirzsu. mxbbvxez ubxiqaxuzq viup x qvudxuvpi oczbz kpd ubxsszt ovuc qpmzpiz ocp rpdat rcxiez zhzbkuvmz xit ipucvie kpd rxi tp xwpdu vu. mpm xaoxkq upat mz ucxu txt rcxiezt, xaqp ucz qxmz ucvie ovuc txt. py oz ezu vu, kpd wpuc rcxiezt.
+their contempts of each other, assaults, arguments - built a narrative in her head - do not trust somebody too much. you might end up living your live like them.
 
-uczi uvmz sxqu wk. nxqu npboxbt up 24 kzxb pat hzbqvpi pn czb.
+she grown up thinking that marriage is an awful concept. marriage translates into a situation where you trapped with someone who could change everytime and nothing you can do about it. mom always told me that dad changed, also the same thing with dad. ok we get it, you both changed.
 
-nzzavieq rpmz sxqu xit wk. ipu x bzxa rcxbmzb, wdu qcz mxixezt up ezu vihpahzt viup qzhzbxa bzaxuvpiqcvsq.
+then time past by. fast forward to 24 year old version of her.
 
-wdu uczbz'q x rxurc czbz. zhzbkuvmz qcz epu viup qpmzpiz rpmnpbuxwaz zipdec, qcz bzxavlzt vu rpdat wz ucz ubxs. ucz ubxs czb sxbziu nzaa oczi uczk ozbz kpdie.
+feelings come past and by. not a real charmer, but she managed to get involved into several relationships.
 
-oczi czb sxbuizb qdeezquvie up quzs ucz bzaxuvpiqcvs npboxbt, vmxezbk pn czb sxbziuq nvecuvie saxkq pi czb mvit avyz x wbpyzi uh. sxqu qubvnzq uxyz phzb czb mvit. qcz wzrpmz uzbbvnvzt. ucz sxivr, ucz ubxdmx.
+but there's a catch here. everytime she got into someone comfortable enough, she realized it could be the trap. the trap her parent fell when they were young.
 
-ucz nxrz pn czb nxuczb ucbpovie saxuzq ipo rcxiezq viup cvm. ucz qcpduq, ixmz-rxaavie, ipo saxkq ovuc cvq hpvrz. czb mpuczb'q ocvmszb ipo uxyz saxrz vi czb adieq. xaa sxvinda mzmpbvzq pn czb kpduc.
+when her partner suggesting to step the relationship forward, imagery of her parents fighting plays on her mind like a broken tv. past strifes take over her mind. she become terrified. the panic, the trauma.
 
-ipsz. uvmz up navecu. qcz qzu wpditxbvzq, wz tvquxiu, sdaavie czbqzan pnn pn zhzbkucvie bzaxuzt ovuc vu. bzexbtazqq ocxu qcz bzxaak nzau, nzxb vq xaa qcz zihvqvpizt.
+the face of her father throwing plates now changes into him. the shouts, name-calling, now plays with his voice. her mother's whimper now take place in her lungs. all painful memories of her youth.
 
-qcz izhzb cxhz npboxbt hvqvpiq pn zhzbk bzaxuvpiqcvs qcz cxt. xit mxk izhzb ovaa. ucz ixbbxuvhz pn xonda mxbbvxez, wzvie apryzt ovuc qpmzpiz ocp rxi rcxiez zhzbkuvmz, uzbbvnvzq czb.
+nope. time to flight. she set boundaries, be distant, pulling herself off of everything related with it. regardless what she really felt, fear is all she envisioned.
 
-<!-- xwrtznecvgyamipsjbqudhofkl Simple Substitution Cipher 
+she never have forward visions of every relationship she had. and may never will. the narrative of awful marriage, being locked with someone who can change everytime, terrifies her.
+
+<!-- 
+
+xwrtznecvgyamipsjbqudhofkl Simple Substitution Cipher 
 http://practicalcryptography.com/ciphers/simple-substitution-cipher/
 -->
