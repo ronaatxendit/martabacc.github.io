@@ -7,6 +7,8 @@ Imagine a highway with a lot of roads. Long ones, and from the beginning you kno
 
 You like to take a walk. You like to see the scenery around. 
 
+<!--more-->
+
 Taking some good time to walk some roads, enjoy the view, see the birds chirping and trees waving, then move to another.
 
 It _always_ happens. It makes you _lost the sense of arriving_. You're always departing.

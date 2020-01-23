@@ -11,6 +11,8 @@ Jadi saat kuliah aku bareng teman-teman SMA sering gereja bareng. Kita sepakat w
 
 Kami alumni seangkatan sering janjian, kecuali satu orang (dia juga alumni SMA yang sama, satu jurusanku juga). Sebut saja Randi.
 
+<!--more-->
+
 Tiap hari Minggu, Randi pasti susah dihubungi. Telfon tak pernah diangkat. SMS jangan harap dibaca. Kalau di chat lewat Line, baru diread hari Seninnya.
 
 Kita sebagai teman-teman yang baik jadi gusar dong. Apa jangan-jangan dia sudah ikut ajaran radikal? Waktu itu gosip ajaran radikal masuk kampus sangat *hot.*

@@ -11,6 +11,8 @@ description:         ''
 url:                 https://martabacc.github.io
 baseurl:             ''
 paginate:            5
+excerpt_separator: <!--more-->
+excerpt: <p> Read more... </p>
 
 # About/contact
 author:

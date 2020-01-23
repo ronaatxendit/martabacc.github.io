@@ -7,6 +7,8 @@ Office matters getting hectic nowadays, that I decided to pull out from gym life
 
 Adjusting the habit of being active to more sedentary one. Life goes on. To substitute, I choose running.
 
+<!--more-->
+
 I have anticipate that there will be some weight loss, as when you stops strength training, water leaves your muscle and losing power, resulting in losing body weight in general. And cardio makes it worse.
 
 <img src='https://raw.githubusercontent.com/martabacc/martabacc.github.io/master/public/post/56.JPG'/>

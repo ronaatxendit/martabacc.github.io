@@ -7,6 +7,8 @@ sejak terakhir aku latihan oly lifting rutin. Atau *strength training* secara ge
 
 Rasanya kangen banget. Selain pikiran yang kangen, badan juga rasanya mencari-cari endorfin.
 
+<!--more-->
+
 Hal yang paling sedih adalah berat badanku jadi turun drastis. Untungnya dia stay di 56, tapi tetep aja sedih.
 
 Sebenernya aku vakum hanya sementara - mungkin sampe Februari karna disitu produk yg lagi digarap sama tim kantor bakal rilis. Tapi rasanya aku balik lagi saat kekuatannya udah turun drastis, rasanya pesimis juga.

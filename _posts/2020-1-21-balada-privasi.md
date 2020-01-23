@@ -9,6 +9,8 @@ Kayak, *ni orang ngapain sih ga jelas banget, buat apa coba kayak gitu*?
 
 *Well*, di dunia yang serba digital ini, semuanya jadi serba mudah. Coba lihat di handphone kalian, semua aspek kehidupan ada disana. Sosial, perbankan, berita, dan lain-lain.
 
+<!--more-->
+
 Dan semua itu kalian bisa akses dengan *identifier* seperti email dan password, PIN, dan apalah.
 
 Aku punya banyak pengalaman buruk dengan privasi. Dan memang aku sendiri pernah eksperimen, *violating privacy* itu sangat mudah. Bermodalkan sedikit pengetahuan IT dan otak yang dikasih oli, mengetahui lokasi seseorang *at the very moment* jadi seperti menjentikkan tangan*.*

@@ -7,6 +7,8 @@ About a year before, we were adamant that _this_ was the best option. We disdain
 
 But table has turned. Future is always unexpected and its unforeseen nature is giving us chills.
 
+<!--more-->
+
 Frankly, we should have seen this happen. We are participant - we saw everything. We should have predicted what comes next, as the audience of company's evolution - its strategy and everything.
 
 But the damage has been done. We cannot pull out, it's too late.

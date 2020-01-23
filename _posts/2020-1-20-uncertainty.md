@@ -7,6 +7,8 @@ title: Uncertainty
 
 A chill wind during one calm afternoon - caressing my cheeks lightly and walking me through the delightful nuance.
 
+<!--more-->
+
 My eyes slips through your charcoal hair along with tangerine shades gifted by the sunset. Wondering how it would feels if my fingers take their turns.
 
 My eyes stroll through remnant eye of yours - crescent-shaped as you chuckled. It's a very slow walk, doing its very best so nothing left behind.
