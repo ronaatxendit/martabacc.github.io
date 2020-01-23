@@ -3,7 +3,7 @@ layout: post
 title: Uncertainty
 ---
 
-![](https://cdns.klimg.com/merdeka.com/i/w/news/2015/12/22/641245/content_images/670x335/20151222205632-2-langit-jakarta-002-dru.jpg)
+![](https://cdn0-production-assets-kly.akamaized.net/medias/1092978/big/041323900_1450872568-Senja_Langit_Jakarta1.jpg)
 
 A chill wind during one calm afternoon - caressing my cheeks lightly and walking me through the delightful nuance.
 
