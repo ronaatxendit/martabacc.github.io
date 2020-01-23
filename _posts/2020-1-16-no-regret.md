@@ -11,7 +11,7 @@ Frankly, we should have seen this happen. We are participant - we saw everything
 
 But the damage has been done. We cannot pull out, it's too late.
 
-People who are out (or luckily have no choice other than move out) that time are spitting sarcastic things now - _'do you enjoy your choice now?'_. Well, I cannot say that I can't.
+People who are out (or luckily have no choice other than move out) that time are spitting sarcastic things now - _'do you enjoy your choice now?'_. Well, I cannot say that I do.
 
 _However..._
 
