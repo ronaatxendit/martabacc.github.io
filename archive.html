@@ -1,0 +1,16 @@
+---
+layout: page
+title: Archives
+---
+
+<div class="related">
+  <ul class="posts">
+  {% for post in site.posts %}
+    <li>
+      <a class="post-link" href="{{ post.url | prepend: site.baseurl }}">
+        {{ post.title }} 
+      </a> - {{ post.date | date: "%b %-d, %Y" }}
+    </li>
+  {% endfor %}
+  </ul>
+</div>
