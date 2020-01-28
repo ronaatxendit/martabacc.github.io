@@ -10,7 +10,7 @@ Software engineering right, it evolves as time past by. It grows from something 
 
 I came to the field where the Nasi Padang era tuck in, an era where people despise Gadogado due to its massive complexity and terrible scalability. It becomes a buzzword - everyone talks about its glory and whatnot.
 
-However, that doesn't mean Nasi Padang offers simpler architecture, or a peace of mind. It just splits haystacks, but the size of _all_ haystacks isn't become any smaller.
+But that doesn't mean Nasi Padang offer simpler architecture, or a peace of mind. It just splits haystacks, but the size of _all_ haystacks isn't become any smaller.
 
 **Now you don't have one big haystack, but numerous amount of small haystacks.**
 
@@ -18,7 +18,7 @@ Instead of a big massive monolithic server, you have small microservices that ta
 
 Then comes the time to find a needle. A bug.
 
-Instead of swarming one big haystack, you allocate several resources to flock small haystacks with regard to find the needle faster.
+Instead of swarming an enormous haystack, you allocate several resources to flock small haystacks with regard to find the needle faster.
 
 It's good though, now we have smaller complexities to swallow.
 
