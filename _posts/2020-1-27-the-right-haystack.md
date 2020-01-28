@@ -4,7 +4,7 @@ title: The Right Haystack [Technical]
 ---
 
 
-I cannot wrap this problem to non-technical context, it's very technical - so I'll just write it vanilla.
+I cannot wrap this problem to something lighter, so I'll just write it vanilla.
 
 Software engineering right, it evolves as time past by. It grows from something Gadogado*, everything mixed and all complexities put in a big bucket - to Nasi Padang, where complexities diversified and distributed according to its responsibilities.
 
@@ -16,7 +16,7 @@ However, that doesn't mean Nasi Padang offers simpler architecture, or a peace o
 
 Instead of a big massive monolithic server, you have small microservices that talks with each other.
 
-Then comes a to find a needle. A bug.
+Then comes the time to find a needle. A bug.
 
 Instead of swarming one big haystack, you allocate several resources to flock small haystacks with regard to find the needle faster.
 
@@ -30,11 +30,11 @@ That's what happened to me last week. There was a bug, a simple one, but I canno
 
 So the bug is about a flow involves several microservices, and I traced each microservice involved. I trace it bottom up (from inner/deepest microservice to outermost one). I cannot find it, it was irreproducible.
 
-But my coworker found it in a flash - only two hours after he was assigned, he created a pull request.
+But my coworker found it in a flash - two hours after he was assigned, he created a pull request.
 
 How come?
 
-I spoke to him and asked how he could find it. *He traced it first from the outermost one*. And there's where the bug is.
+I spoke to him and asked how he could find it. *He traced it first from the outermost one*. And there's where the bug is. At the outermost one.
 
 Damn, I was looking at the wrong microservice the entire time. I spent my precious time looking at the wrong haystack.
 
