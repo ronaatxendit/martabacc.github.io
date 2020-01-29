@@ -4,7 +4,7 @@ title: Emotionally Available
 ---
 
 
-Ramayana is one famous saga and here, as told in Wayang shows and sacred as culture legacy. It comes with classic plot: Rama as protagonist, Sita as central female character and Ravana as the antagonist.
+Ramayana is one famous saga and here told in Wayang shows. It comes with classic plot: Rama as protagonist, Sita as central female character and Ravana as the antagonist.
 
 I read it from a thick book with black cover with huge title 'Ravana'.
 
@@ -16,7 +16,7 @@ The book mentioned that Sita was touched by Ravana’s kindness towards her, des
 
 In vengeance, Rama declared war - resulted Ravana’s tragic defeat and Rama’s glorious victory.
 
-Despite the victory, Sita Sita did not happen to live happily ever after with her husband. 
+Despite the victory, Sita did not happen to live happily ever after with her husband. 
 
 She got exiled twice. First, Ayodhyas (Rama's people) doubted Sita's purity (that she had lived with a man other than her husband), to which she proved by stayed alive after walked on stones of fire. The second exile due to her childhood curse.
 
