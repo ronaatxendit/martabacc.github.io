@@ -1,6 +1,6 @@
 ---
 layout: post
-title: The Right Haystack [Technical]
+title: The Right Haystack
 ---
 
 
