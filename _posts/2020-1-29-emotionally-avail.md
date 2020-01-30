@@ -57,9 +57,3 @@ If Sita was emotionally available, embracing all the Ravana's kind advances, his
 
 
 No matter how much the world shuffles and revolves around you, you will not change - if you are not present. Even if you are physically there - no use if your mind wanders somewhere else.
-
-In the end, it depends on your choosing: 
-
-Do you need to be available?  
-What will happen if you do?  
-What will happen if you don't?  
