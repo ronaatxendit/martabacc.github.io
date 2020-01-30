@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Pandora's Delight
+title: Unknown's Delight
 ---
 
 It is a delight for me to find myself mystified. 
@@ -15,7 +15,6 @@ Hold your horses, as there's more of it.
 
 **Yes, there's more of it!** It comes when I try to make the same one at my kitchen. Replicating what I’ve tasted before. The triumph when I did it, send chills down the spine even though it's just a small accomplice. *My little food laboratory.*
 
-**Anticipating the unknowns, the delight of Pandora.**
 
 Reading is also one of my greatest source of satisfaction. Especially the one with plot twists. Brief clues and let the readers do the rest - skim the nuance, the situation, stirs emotions in cadence.
 
