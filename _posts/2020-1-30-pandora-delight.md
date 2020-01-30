@@ -7,7 +7,7 @@ It is a delight for me to find myself mystified.
 
 Like the enjoyment when I find good food in somewhere fortuitous, and they actually worth it. 
 
-When they don’t serve their looks, eye is easy to deceive.
+When they don’t serve their looks, eye is gullible.
 
 The spices, they fulfill each other. I sink myself in the flavor, astonished of their perfect combination, as they arrives in my taste buds.
 
