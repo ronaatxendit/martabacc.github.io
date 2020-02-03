@@ -15,7 +15,7 @@ title: Paradoks I - Apresiasi
 
 ---     
 
-Tapi aneh kan ga sih? Sesuatu bikin kita bosen ya pasti ada sebabnya dong. Karna hal tersebut ga *exciting.* Apalagi buat orang yang gampang bosenan (kayak aku), ini hal paling menyusahkan karna jadi susah buat konsisten dalam satu hal. 
+Tapi aneh ga sih? Sesuatu bikin kita bosen ya pasti ada sebabnya dong. Karna hal tersebut ga *exciting.* Apalagi buat orang yang gampang bosenan (kayak aku), ini hal paling menyusahkan karna jadi susah buat konsisten dalam satu hal. 
 
 Kalo kata temenku, daripada *merungut (bahasa Bataknya mengeluh)*, coba diganti *mindset*nya (ciaelah)
 
