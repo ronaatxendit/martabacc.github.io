@@ -17,7 +17,7 @@ Sebenernya ini hal sepele, lho. Produknya lumayan kecil. Hanya akunya aja yang n
 
 Saking takutnya kayak - ah pantes ga sih aku *handle* produknya? Bisa ga sih aku ngemban tanggung jawab ini? Apakah aku *capable*? Apa aku siap?
 
-*Hahaha* gimanapun caranya pasti bisa lewatin fase ini. Kalau nggak dilatih dari sekarang untuk tanggung jawab kecil, gimana bisa aku sanggup ambil tanggung jawab yang lebih besar? 
+*Hahaha* gimanapun caranya pasti bisa lewatin fase ini. Kalau nggak dilatih dari sekarang untuk tanggung jawab kecil, gimana bisa ambil yang lebih besar? 
 
 Masa segini-segini terus? (;
 
