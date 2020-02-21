@@ -19,6 +19,6 @@ Lagi belajar kalau ada keadaan yang bikin pusing, daripada takut dan larut dalam
 
 Atau mikirin ayam keprabon yang ada ganjanya 🤤 enak pol
 
-Yang aku rasain sekarang sih, kadang waktu panik lupa untuk  _tidak panik_. Butuh dikontrol sih. Mungkin  butuh jam terbang lebih banyak aja kali yaaa ((;   
+Yang aku rasain sekarang sih, kadang waktu panik lupa untuk  _tidak panik_. Butuh dikontrol sih. Mungkin butuh jam terbang lebih banyak aja kali yaaa ((;   
 
 Juga minta pendapat dari orang itu membantu, lho. Atau sekadar cerita. Opini dari orang-orang yang membangun membantu banget lho, menambah _second opinion_ buat pikiran kita yang lagi mumet. Jadi kita gak terkurung dalam pikiran kita sendiri. _Karna mungkin aja ada yang kita lewatkan, kan?_
