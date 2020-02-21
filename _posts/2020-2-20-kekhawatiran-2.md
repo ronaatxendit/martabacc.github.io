@@ -15,4 +15,4 @@ Karna itu perasaan-perasaan negatif. Kayaknya perasaan dan emosi itu menular. Da
 
 Aku rasa ini saatnya untuk kurangi takut, dan melapangkan pikiran. *Embrace* apa yang akan datang. Belakangan aku terlalu capek khawatir - dan aku tahu itu nggak baik. *Time to embrace the worst - or the best of it. Let it be.*
 
-Saatnya melepas sifat overthinking 🖖🏻akan *manage* pikiran lebih baik lagi ✌🏻
+Saatnya melepas sifat overthinking, dan *manage* pikiran lebih baik lagi  🖖🏻
