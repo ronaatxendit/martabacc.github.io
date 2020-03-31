@@ -3,7 +3,7 @@ layout: post
 title: Reminisce
 --- 
 
-A friend of mine posted healthcheck result. Pretty healthy, except for knee parts. It reveals meniscus tear, a severe one.
+A friend of mine posted healthcheck result. Pretty healthy, except for knees. It reveals meniscus tear, a severe one.
 
 That is devastating. We both know that we love the sport so much - weightlifting - and it requires healthy joints to grow. Doctor advised to not continue the hobby, and suggest something less joint-taxing instead. He has achieved quite good numbers on his lift, that's unfortunate to receive such news.
 
