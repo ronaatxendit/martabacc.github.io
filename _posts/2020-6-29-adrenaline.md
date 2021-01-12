@@ -24,4 +24,4 @@ What have I learned from this sport?
 - risk management & adaptability. Loss is not the end of the world.
 - not be so damn greedy. stick to the fucking plan.
 
-I plan to allocate more into this bag, as its gain is bigger than terms deposit (I can make gain 10% monthly, meanwhile deposito just 7% ann). Planning to at least having 100mio as capital to trading, looking around 1-2years for this aim :p see you on the other side!
+I plan to allocate more into this bag, as its gain is bigger than terms deposit (I can make gain 10% monthly, meanwhile deposito just 7% ann.). At least aiming 100mio as capital to trading, looking around 1-2years for this aim :p see you on the other side!
