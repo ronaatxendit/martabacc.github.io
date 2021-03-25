@@ -1,8 +1,9 @@
 ---
 layout: post
-title: adrenaline junkie
+title: empty post
 --- 
 
+<!--
 Been a month since switched from long-term investment into short-period trader.
 
 To be honest, it is an extreme sport. Walks you through wheel of emotions. One time brings you to despair, and another time bursts you with joy and triumph when they go up.
@@ -25,3 +26,4 @@ What have I learned from this sport?
 - not be so damn greedy. stick to the fucking plan.
 
 I plan to allocate more into this bag, as its gain is bigger than terms deposit (I can make gain 10% monthly, meanwhile deposito just 7% ann.). At least aiming 100mio as capital to trading, looking around 1-2years for this aim :p see you on the other side!
+-->
