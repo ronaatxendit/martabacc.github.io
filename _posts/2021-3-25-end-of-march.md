@@ -17,4 +17,4 @@ I was sad. Devastated. _Am I not good enough? If yes, where can I improve?_. Tha
 
 But again, life goes on. It doesn't end anywhere until it really ends. There's a lot of fine place to do marathons of life and career. Let's hope the destination we're going to is better than what we've failed to achieve.
 
-It will just take a lot of time to let that sink in, and to let the dreams go. To tell ourselves that what is best for us might not be what we think it is. As long as we do our best, the good will follow.
+It'll take lot of time to let that sink in, letting the idea evaporates. To tell ourselves that what is best for us might not be what we think it is. As long as we do our best, the good will follow.
