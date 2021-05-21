@@ -8,6 +8,7 @@ I often wake up tired these days.
 Time had came for me to secure the chance of something I've dreamt for a long time. Been wondering for years to have a seat secured there, working with wonderful coworkers, thinking with the best minds.
 
 But it was a pity, it didn't go as planned.
+
 <!--
 I didn't know whether I'm not good enough or they just savin' me for their _second option_. Regardless, ghosting is not a good practice, and it implies no good intention. Even company as big as Google inform their candidates two weeks, tops.
 
