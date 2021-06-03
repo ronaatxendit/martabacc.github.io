@@ -1,32 +1,22 @@
 ---
 layout: post
-title: "chess noob"
+title: "undefined"
 --- 
 
-I think know chess at age of 7 ? but it took around 17 years later for me to find enjoyment in it.
+Three years ago, there was an ice cream roll store at a mall, near from my office. Every day I always stopped there to buy a nice green tea ice cream.
 
-I hate checkmates. But I enjoy delivering one (haha such double standard).
+Despite its price (almost $2 for a cup), I find it suits the price because of the taste. I love it so much - that I even thought of opening my own ice cream roll store, but later I decided not to due to its specific tech that is a bit pricy.
 
-But despite it is interesting and I enjoy it so much, it is a tough sport and require tedious practices and knowledges. Little did I know, memorizing certain positions and what happens next is common things in chess.
+(image)[https://spicesnflavors.com/wp-content/uploads/2017/08/rolled-ice-cream-1-min.jpg]
 
-What I love about it is - playing chess is like painting. It requires creativity of what color -  what moves we pick next, and we can pick any moves we want. But why should we? Then you check what your opponent will do, what will they do? And why should they do that?
+I often found myself queueing along with kids, or their parents. That was funny but I'm still waiting for my turn. My sweet baby matcha ice cream, my forever delight.
 
-That particular process is called calculating. Yes, calculating in math is already difficult, and then comes calculating moves in chess.
+Sadly, it closes 3 months after. I noticed that their employees regularly decreasing each month - first there are 4 employees attending the store and at the last month I saw them there was only one, handling both cashier and making ice cream.
 
-It kinda like drawing a graph, with certain node is scored by our winning-likely measurement.
+I can read the situation that it could be signs - my favorite ice cream store is about to be bankrupt.
 
-Due to my very short attention-span, I can only last one depth of calculation in my every move of chess. Pity of me, this ease my opponents to deliver mate sooner before my eyes (LOL).
+My heart so broke when I came again a week after and found no one there. Lights were off. I was like super excited for my delight and instead what I see is sadness.
 
-But no worry, even grandmasters said that calculation requires years of practicing and studying. It didn't happen in one night.
+I never been so heartbroken. I even tried to locate another store - maybe it's open, right? But nope - the entire icecream roll is closed, once and for all.
 
-But also what is interesting about this is, there are people out there making their own life by playing chess. Never occurs to me to play chess to make a living, but apparently if you play well you can earn money like regular athletes.
-
-(well, is chess even a sport? Hahaha)
-
-It's hard. Currently only remembers three openings/attacks and around two defenses, and still blunders my pieces (HAHAHAHA). I got very disappointed when mated but I also persists in keep playing chess.
-
-I don't know why chess is so attractive - despite I loses all the time, I still like to learn and study how to win.
-
-Sometimes a thought comes to my mind - stop these ridiculous games you better exercise on what you do best - coding. Chess is like learning mandarin,and I am a beginner, in which if I was learning in formal institution, I will have kindergarten students as my classmate. Such a pity.
-
-I know that I'm a noob, but somehow I still decide to play it anyways, and think of it all the time. Kid you not, lately I've dreamed about several positions in chess. It just stuck in my mind and I don't know why.
+Now, every time I walks by the store it used to be - I can taste their ice cream in my mouth. Soft, creamy and tasty. One day I hope I can taste them again, I hope it's in this current lifetime ;)
