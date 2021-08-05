@@ -15,7 +15,7 @@ And in that room, you will find empty racks, about ceiling-hight, not really hig
 
 The racks is empty, of course - because I haven't filled them yet.
 
-That time, I put two books in there, two people that matters in my life. I put them in first-left side of the rack, the first one after the door.
+That time, I put two books in there. I put them in first-left side of the rack, the first one after the door.
 
 Now, after 2 years, I watch it again, and mind palace was mentioned in a scene. Struck like a lightning, it brings me back to my mind palace. it is wonderful how that room never change - the wind is still blowing and slips under the window. the wood aroma.
 
