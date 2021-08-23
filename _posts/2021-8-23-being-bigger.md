@@ -13,21 +13,21 @@ That anger reflects to others. I get angry to myself for anything else - anythin
 
 I realized I have anger issues at the end of last year. Long story short, I dealt with it by taking time-out, and taking some steps back. That episode is really alarming, that I decide I cannot be like that anymore. I decide to forgive. I decide that  mistakes indeed happen, and there's nothing we can do except forgive and makes sure that don't happen again.
 
-Fast forward a year later, I find myself a very different person. I become a lot more forgiving to myself. I become more free, and I find myself more free. I can use that freedom of anger to do anything else, to learn, to watch series, to read, to eat, or anything - but I didn't choose to be angry.
+Fast forward a year later, I find myself a very different person. I become a lot more forgiving to myself. I become free. I can use the freedom of anger to do anything else, to learn, to watch series, to read, to eat, or anything.
 
-I know what's the big bubble is. I am afraid that I'm not enough, that I don't deserve what I have, despite how hard I try.
+I know what's the actual ground. I am afraid that I'm not enough, that I don't deserve what I have, despite how hard I try.
 
-And I make peace with it. With the big bubble. It's simply admitting, that yourself is enough. Being not the best is okay. Just try hard and let nature do the decision.
+I make peace with it. It's simply admitting, that yourself is enough. That being not perfect, is okay. Human simply makes mistakes.
 
 It was hard, you know. To dodge the temptation to blame yourself. To not let yourself putting you as the black goat for everything that happen.
 
 That decision is, awakening. I realize how have anger has close one eye and this whole time I only see with one eye. It's awakening to see with both eyes - to see without being angry.
 
-I can learn freely. I can make mistakes without being afraid of being blamed of myself for mistakes I might have make in the future.
+I can learn, I make decisions with clear eyes. I decide without being paranoid of being blamed of my future self for mistakes I might make.
 
-It's liberating, you know. But yeah.
+It's liberating.
 
-I was afraid that I might make another big mistakes in my life. But at that time, I'll forgive myself, because I know myself will have done the best effort she can. She will thrive to the end, and if she misses anything, it won't happen twice.
+At some point, I'm afraid of another big mistakes in my life. Like, what could it be? How much low will it drag me? But now I know, at that time, I'll forgive myself, because I know myself will have done the best effort she can. She will thrive to the end, and if she misses anything, it won't happen twice.
 
 She'll do good. :)
 
