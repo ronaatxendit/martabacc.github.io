@@ -23,10 +23,10 @@ Dang, that sounds resentful. No, I'm not hating patriarchy. What I resent is how
 
 Both have brain, eats rice everyday, but why one can't enjoy the facility as much as the other? Why does one sent home and one can continue their work/game in a very privileged place with fast-speed wifi network, PCs free to use, an entire server to experiment with? Some men abuse the power patriarchy give them, and they close their eyes of what they're actually doing.
 
-Well, one can argue that women can continue their learning at the next day. If you say that too, then you don't see my point. If this is an eating contest of 24 hour, one you only give 2 hour while the other have 8 to finish their plate. Who will win?
+Well, one can argue that women can continue their learning at the next day. If you say that too, then you don't see my point. If this is an eating contest, one you only give 2 hour while the other have 8 to finish their plate. Who will win?
 
 You guess, I didn't stay there after I graduated. I moved to capital because I know the culture here won't be the same. And it is.
 
-One of the good thing I left from this bad culture is, afterwards I never let someone tell me what I can't do. It's never about their opinion, it's about what I can do. The grit sticks on me. I might not have much intelligence, but what I have in me is passion of never let something unfinished. It's either finished, or I didn't take it at all.
+One of the good thing I left from this bad culture is, afterwards I never let someone tell me what I can't do. It's never about their opinion, it's about what I can do. The grit stays on me. I might not have much intelligence, but what I have in me is passion of never let something unfinished. It's either finished, or I didn't take it at all.
 
 Thank you for the lesson, patriarchy. Oh, I mean, people who abuse the term and use them to say what women can't do and put limit to what they think best. For your information, your opinion is not asked but will be put as an appendix.
